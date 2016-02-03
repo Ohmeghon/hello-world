@@ -1,2 +1,1 @@
-# hello-world
-I are learning
+This is EDITED AND FINISHED MENG
